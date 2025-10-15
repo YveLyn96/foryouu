@@ -1,0 +1,2 @@
+# foryouu
+buat kamuu
